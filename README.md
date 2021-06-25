@@ -1,2 +1,2 @@
 # solucion_para_nuestras_pymes
-Daremos a conocer las etapas del proceso de nuestro proyecto para poder solucionar las problematicas de las Pymes y MiPymes
+Como grupo  Los Charros de Lumaco , daremos a conocer las fases de nuestro proyecto para poder  ayudar a las Pymes y MiPymes de nuestro pais
